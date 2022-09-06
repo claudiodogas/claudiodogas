@@ -1,10 +1,8 @@
 - # meu perfil
 - 👋 Hi, I’m **Douglas**
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in  aprender muito no github
+- gosto muito de futsal
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate
  [instagram](https://instagram.com/dougrinhas_xyz7?igshid=YmMyMTAM2Y=)
-claudiodogas/claudiodogas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- segue la no insta
