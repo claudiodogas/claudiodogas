@@ -5,5 +5,5 @@
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate
 - Quero muito aprender com a materia de pensamento computacional
-[instagram](https://instagram.com/dougrinhas_xyz7?igshid=YmMyMTAM2Y=)
-- segue la no insta
+
+- segue la no [insta](https://instagram.com/dougrinhas_xyz7?igshid=YmMyMTAM2Y=)
