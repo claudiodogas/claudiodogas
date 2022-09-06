@@ -4,5 +4,6 @@
 - gosto muito de futsal
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate
- [instagram](https://instagram.com/dougrinhas_xyz7?igshid=YmMyMTAM2Y=)
+- Quero muito aprender com a materia de pensamento computacional
+[instagram](https://instagram.com/dougrinhas_xyz7?igshid=YmMyMTAM2Y=)
 - segue la no insta
